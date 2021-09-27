@@ -1,1 +1,2 @@
-Alexandr Sazhin 611Pst Alexand Sazhin 611Pst
+Alexandr Sazhin 611Pst
+Alexey Rubel
